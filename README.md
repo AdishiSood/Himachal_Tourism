@@ -1,2 +1,10 @@
-# Himachal_Tourism
-Abode Of Gods
+## Abode Of Gods
+
+### About
+Situated in north India amidst the lower Himalayan ranges, Himachal Pradesh is a breathtaking state synonymous with lush greenery, spectacular views of mighty mountains and valleys, a rich culture, delicious food, adventure sports, a colonial past, and so much more. An absolute treat for adventure seekers, families, honeymooners and solo travellers, the many cities within the state have plenty to offer to tourists and locals alike.
+
+Shimla is the state’s capital and was once the summer capital of British India, as is evident by the many attractions dating back to the colonial period, including The Ridge. Another one of Himachal’s most commonly visited cities is Manali which experiences snowfall during the winters, attracting large crowds. Tourists flock to Solang Valley and Rohtang Pass since they are renowned for trekking, paragliding, skiing, horse riding and other adventure sports. The state is easily accessible via road, be it in a car, cab or bus, via the railway and sometimes via flight.
+
+For a touch of Buddhist culture, Mcleodganj is the perfect destination since it is the residence of the holy Dalai Lama and houses beautiful Tibetan temples and institutes. Dalhousie, another hill station with a colonial past, is a paradise for nature lovers with cascading waterfalls, sprawling meadows, dense forests, misty mountains and more. Finally, Kasol, known as the “Amsterdam of India,” is a more off-beat destination in Himachal that is predominantly famous among adventure lovers who come here for trekking and camping.
+
+Himachal Pradesh is a state rich in culture and traditions, whether in terms of art, cuisine or festivals. Tourists can scour its many markets for Pashmina shawls, Himachali caps, Chamba rumals, jewellery, metalwork etc. Any visit to the state would be incomplete with tasting some of its delicacies like dhaam, madra, chha gosht, and many Tibetan dishes. And it would undoubtedly be an unforgettable experience to witness some of Himachal’s most well-known festivals like Kullu Dussehra, which is a week-long affair.
